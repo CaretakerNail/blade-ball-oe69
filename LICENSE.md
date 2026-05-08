@@ -1,4 +1,4 @@
-
+Experience blade ball like never before with no-ban Scripts for blade ball, the #1 Script. Includes instant win and custom skins for unbeatable
 
 
 
